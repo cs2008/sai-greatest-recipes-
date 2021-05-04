@@ -1,0 +1,3 @@
+lets start by making the cream. to start get a bowl and melt 250g of butter and add 200g of salt and 100g of sugar.and mix for 1 hour. 
+next lets make the cake base. crack the eggs with the shell throew it into a bowl and add 900 g flour and 300g salt and mix for 5 hours. after add sugar and mix for 30 mins. add all of the baking soda and mix for 1 minute and 49.124712 seconds. and throw it into the baking pan bake it for 6 hours in the heat of 50 degrees. 
+get the cake out and dump the rest of the sugar on it and rub the cream on the cake even on the bottom. next take all 5 snicker bars eat half of all of it and keep rest of them around the cake. tke the cake and give it to you neighbor and if they say no give the snickers to them and take the cake.
